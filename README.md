@@ -2,4 +2,4 @@
 小説です。
 
 
-© 2026 komaoji, All Rights Reserved.
+© 2026 Rimasutoyahok, All Rights Reserved.
